@@ -1,1 +1,1 @@
-# novoprojetolp
+Alunos: Juliana Viédes e Leonardo Duarte
